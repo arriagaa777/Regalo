@@ -1,2 +1,2 @@
 # Regalo
-Un obsequio para gi
+Un obsequio para ti
